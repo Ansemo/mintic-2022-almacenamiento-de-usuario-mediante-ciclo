@@ -1,0 +1,1 @@
+# mintic-2022-world-craft-ascii-parte-2.0
